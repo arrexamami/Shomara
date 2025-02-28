@@ -1,1 +1,1 @@
-# Shomara
+# hack radkor
